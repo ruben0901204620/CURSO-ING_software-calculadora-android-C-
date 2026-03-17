@@ -30,5 +30,4 @@ Podemos actualizar nuestra Política de Privacidad de vez en cuando. Se recomien
 
 7. Contacto
 Si tiene alguna pregunta sobre esta Política de Privacidad, puede contactarnos en:
-Correo electrónico: [TuCorreoAqui@gmail.com]
-
+Correo electrónico: aronesquitsilva16@gmail.com
